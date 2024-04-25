@@ -15,7 +15,7 @@ I usually go by "Tienne_k".
 - 👯 I’m looking to collaborate on  dinocologiy
 - 🤔 I’m looking for help with  dinos
 - 💬 Ask me about  dinosog
-- 📫 How to reach me:  by hand
+- 📫 How to reach me:  by hand?
 - 😄 Pronouns:  deenocologist
 - ⚡ Fun fact:
 
